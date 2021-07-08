@@ -1,4 +1,4 @@
-# Receita de Paella :fish
+# Receita de Paella :fish: :octopus: :shrimp: :squid:
 ## Mariscos:
 ### Separe o polvo, o camarão, a lula, o mexilhão e deixe descongelar
 ### Depois de descongelados, coloque-os para ferver
